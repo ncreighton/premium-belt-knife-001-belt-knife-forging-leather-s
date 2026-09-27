@@ -1,0 +1,2 @@
+# premium-belt-knife-001-belt-knife-forging-leather-s
+Tired of juggling scattered notes, YouTube timestamps, and half-finished sketches while trying to forge your first belt knife and craft a matching leather sheath?  This Notion template turns the chaos of knife making and leather work into one streamlined, repeatable system. It guides you from raw steel selection to the final sheath stitch, ensuring
